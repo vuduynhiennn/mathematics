@@ -8,6 +8,4 @@ https://ngochuyenlb.edu.vn/lesson-view/live-b-livestream-chua-btvn-buoi-32-6143f
 
 buổi 32 live B: done 
 
-
-https://ngochuyenlb.edu.vn/lesson-view/live-b-buoi-34-phuong-trinh-mat-phang-cac-van-de-ly-thuyet-bai-toan-viet-ptmp-614d2ac6cdae3c0c6ae02293
-47:16
+BÀI GIẢNG: [2K4HH] BUỔI 20 - TẬP 7 - BÀI 2: PHƯƠNG TRÌNH MP - (DẠNG 4) PT MP THEO ĐOẠN CHẮN - BÀI GIẢNG 3: VD6,7,8
