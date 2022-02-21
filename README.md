@@ -12,3 +12,5 @@ xáxcxác xuất lớp 11
 đề 8+ 
 
 đề 1: câu 29, 33 (xác xuất), 35 (pt mặt cầu), 42
+
+cosi
