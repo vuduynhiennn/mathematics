@@ -17,3 +17,5 @@ cosi
 
 toorng oon 
 buoi 1, 2, 3, 8, 9, 10
+
+tương giao dạng cơ bản live b buổi 19
