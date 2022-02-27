@@ -14,3 +14,6 @@ xáxcxác xuất lớp 11
 đề 1: câu 29, 33 (xác xuất), 35 (pt mặt cầu), 42
 
 cosi
+
+toorng oon 
+buoi 1, 2, 3, 8 9, 10, 11, 
