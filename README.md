@@ -20,3 +20,5 @@ buoi 1, 2, 3, 8, 9, 10
 
 tương giao dạng cơ bản live b buổi 19
 https://drive.google.com/file/d/1UVIoLwqwUrqmWOyY8KtedkN5NbKl_udN/view 1:42
+
+buổi 2 live N cực trị hàm hợp chưa hiể lắm phần live 
